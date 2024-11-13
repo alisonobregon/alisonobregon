@@ -1,4 +1,5 @@
-![pokemon gifs](https://github.com/user-attachments/assets/9ed6fc1d-c32f-48c5-9e6c-3bb855d83529)
+![901503f956cd94afe004c71c63967f45](https://github.com/user-attachments/assets/b89eca71-1147-4041-95ed-751078adfbfe)
+
 
 # 👋 ¡Hola! Soy Alison Obregón Jiménez
 
