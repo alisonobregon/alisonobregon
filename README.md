@@ -1,3 +1,5 @@
+![pokemon gifs](https://github.com/user-attachments/assets/9ed6fc1d-c32f-48c5-9e6c-3bb855d83529)
+
 # 👋 ¡Hola! Soy Alison Obregón Jiménez
 
 🎓 Estudiante de Desarrollo de Aplicaciones Multiplataforma  
